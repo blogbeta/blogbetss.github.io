@@ -1,1 +1,1 @@
-# blogbetss.github.io
+# blogbeta.github.io
